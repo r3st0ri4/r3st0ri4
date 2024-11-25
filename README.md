@@ -1,4 +1,4 @@
-- 🇦🇿 Salam Aleykum, I’m @r3st0ri4
+-
 - Soon...
 
 <!---
